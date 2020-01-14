@@ -1,1 +1,1 @@
-![CAAD](/img/CATHA&ADAM_503.jpg)
+![CAAD](/img/CATHA&ADAM_503.jpeg)
